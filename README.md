@@ -1,1 +1,1 @@
-<h1>YA LAY ***</h1>
+<h1>THESE ALL ARE PATTERNS CODING</h1>
